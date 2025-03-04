@@ -2,7 +2,7 @@
 
 ## Ingredients
 * Avacado
-* Lemon
+* Limes
 * Salt
 * Cilantro
 
